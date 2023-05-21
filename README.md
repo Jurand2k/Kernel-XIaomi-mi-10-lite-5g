@@ -1,0 +1,1 @@
+# Kernel-XIaomi-mi-10-lite-5g
